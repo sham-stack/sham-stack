@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email- shambhaviikumari11@gmail.com
--                    insta-  shamvi_._
+- 🦩 Insta-  shamvi_._
 - ⚡ Fun fact: I'm not as rude as I look 
 
 <!---
